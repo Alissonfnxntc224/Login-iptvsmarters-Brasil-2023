@@ -1,5 +1,6 @@
 # Login-iptvsmarters-Brasil-2023
 
+Atenção: Pra quem quer ter  uma lista completa com canais, filmes e séries sem travamentos. Mande uma mensagem para 3597320985
 ⚠️pessoal testem essas listas, faz pouco tempo que as testei mas as que estiverem offline me avise. Com o alto numero de acesso pode ser que travem.
 
 ⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭⏭
